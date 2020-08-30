@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1.Google
+2.Discord
+3.Youtube
+4.Studying

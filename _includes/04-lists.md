@@ -1,0 +1,4 @@
+* Google
+* Discord
+* Youtube
+* Studying
